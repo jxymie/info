@@ -1,4 +1,5 @@
 (NOT SCREENREADER FRIENDLY https://jxymiegithubsr for screen reader friendly)
+
 ☁️⋅♡𓂃 ABOUT ME . 🔮 !
 
 ☽｡⋆ Heyo ! I'm Jay but you can call me anything tbh i dont really mind ‧₊˚ ☁️⋅♡𓂃 ࣪ ִֶָ☾.
