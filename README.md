@@ -10,17 +10,6 @@ if you ever want to talk to me just boop or whisper and ill always be down to ch
 
 ⋆⸜ 🎧✮ BYI
 
-↳ ❝ My mood and personality change but i'll try to be friendly ¡ I hide any skins with age in their name ¡ If theres too many people around i can get overwhelmed and will ask to move (pls respect this) ¡ If my skin's eyes are closed it means im afk/offtab! whisper me if you want me to come back ¡! ❞
-
-
-⋆⸜ 🎧✮ INT
-
-↳ ❝ Any of my shared interests !¡ Cuddle + Hide is perfectly okay unless i specify otherwise! but if im with a friend please ask ¡! ❞
-
-
-⋆⸜ 🎧✮ DNI
-
-↳ ❝ Honestly just DNI if youre under 16 or youre a piece of shit, other than that i dont really care ¡! ❞
-
+↳ ❝ My mood and personality change but i'll try to be friendly ¡ I hide any skins with age in their name ¡ If theres too many people around i can get overwhelmed and will ask to move (pls respect this) ¡ If my skin's eyes are closed it means im afk/offtab! whisper me if you want me to come back ¡ I'm a satanist (tst) and is wary around catholic/christian, if you dont like this I dont mind but do some research before you call me names ¡! ❞
 
 ☽｡⋆ Thanks for reading, have a great day pookies  ‧₊˚ ☁️⋅♡𓂃 ࣪ ִֶָ☾.
